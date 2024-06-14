@@ -1,4 +1,9 @@
-## Hi there 👋
+
+# ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ✨ꜱᴇᴊᴀᴍ ʙᴇᴍ ᴠɪɴᴅᴏꜱ ᴀᴏ ᴍᴇᴜ ᴘᴇʀꜰɪʟ✨
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ✨![](https://media1.tenor.com/m/M9Cj7p4fJOMAAAAC/cockatiel-parrot.gif) ✨
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+
+ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴍʏ ᴘʀᴏꜰɪʟᴇ
 
 <!--
 **MIYMIYUKI/MIYMIYUKI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
